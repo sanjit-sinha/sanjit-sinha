@@ -1,1 +1,1 @@
-![](https://te.legra.ph/file/4350919b7f814d36d06c1.jpg)
+![](https://te.legra.ph/file/6c105e01de9712ed36892.gif)
