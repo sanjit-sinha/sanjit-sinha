@@ -1,1 +1,5 @@
-![](https://te.legra.ph/file/6c105e01de9712ed36892.gif)
+<div align="center">
+<img src="https://te.legra.ph/file/6c105e01de9712ed36892.gif" align="center" style="width: 100%" />
+</div>
+
+
